@@ -1,5 +1,7 @@
 passionate about delivering software
-</br>
-you believe in
-</br>
-you enjoy developing
+</br></br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;you trust no matter
+</br></br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;you enjoy developing
+</br></br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;you believe in its potential
